@@ -2,7 +2,7 @@
 - 👀 I’m interested in Brain-Inprised intelligent,DRL,MARL
 - 🌱 I’m currently learning Brain network
 - 💞️ I’m looking to collaborate on ...emm,everyone have the same interest will be welcome.Hope to get a further communication
-- 📫 How to reach me ...emm
+- 📫 How to reach me ...emm,I don't know,yet
 - 😄 Pronouns: Call me mangsang,please
 - ⚡ Fun fact: a fun fact is that it is the negative propositions of having no uninterested fact
 
